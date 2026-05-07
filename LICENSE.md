@@ -1,4 +1,4 @@
-
+new dig deeper for brainrots Script is the best dig deeper for brainrots Script, featuring silent aim and teleport. Safe and powerful for all your
 
 
 
